@@ -5,7 +5,7 @@ My name is **Kanchan Pandey**, and I'm a **Junior School Student** at [Tagore Se
 
 ### My Education:
 
-[**JUNIOR SCHOOL**](http://tagoreschool.com) *Tagore Senior Secandary School*, New Delhi, India (2015-2023 Present)
+[**JUNIOR SCHOOL**](http://tagoreschool.com) *Tagore Senior Secondary School*, New Delhi, India (2015-2023 Present)
 
 **Coursework** : Languages, Mathematics, Science, Chemistry, SSC, & Computer.
 
